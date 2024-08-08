@@ -1,0 +1,55 @@
++++
+title = "Jarasutanubandhana Ksitisa"
+date = "2024-08-07"
++++
+
+# Jarasutanubandhana Ksitisa
+**![](http://kksongs.org/image_files/image002.jpg)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[J](http://kksongs.org/songs/song_j.html)**
+
+**Song Name: Jarasutanubandhana Ksitisa**
+
+**Official Name: Volume 2 Chapter 27 Verse 62 Virudavali 2**
+
+**Author:** [**Jiva** **Goswami**](http://kksongs.org/authors/list/jivagoswami.html)
+
+**Book Name: [Gopala Campu](http://kksongs.org/authors/gopalacampu.html)**
+
+**Language: [Sanskrit](http://kksongs.org/language/list/sanskrit.html)**
+
+**LYRICS:**
+
+jarāsutānubandhana-kṣitīśa-vṛnda-bandhana-śruter atīva sūrataḥ surarṣiṇāpi dūrataḥ
+
+sametya pārtha-yācitaḿ kratu-kriyāśaya citaḿ sad-unnayārtham uddhava-prayukta-mantra-sūddhavaḥ
+
+kṣayāya māgadheśituḥ purāgataḥ paraḿ pituḥ svasuḥ sutasya mandiraḿ sva-yogya-samsad-indiram
+
+tad-uddhavokta-mantraṇāt tadīya-bhakti-yantraṇāt kirīṭa-bhīma-sańgataś chalena vipratāḿ gataḥ
+
+tadā jarāsutaḿ sajan niyodhum arthitaḿ bhajan yudhīha bhīmam unnayan mukhena tasya nirṇayann
+
+anena taḿ ca yodhayan svam enam atra bodhayan nijeńgitādanekaśas tatāna cāsya sad-yaśaḥ
+
+sa māgadheśa-ghātanaḥ kṣitīśa-bandha-śātanaḥ samasta-yatna-sārthakaḥ prananditātma-pārthakaḥ
+
+sva-kḷpta-rājasūyakas tad-āpta-pūjya-bhūyakaḥ tataś ca cedipe ruṣā kṣipaty api kṣamājuṣām
+
+upetya vartma su-sthiraḥ sva-bhakta-nindanācira-prarūḍha-kopa-paddhatiḥ sva-cakra-sṛṣṭa-tad-dhatiḥ
+
+samāpta-pārtha-yajñakaḥ prasiddhi-bhāk samajñakaḥ. tad evam apy asau punaḥ sva-ghoṣa-vāsinas tu naḥ
+
+samardhayan samāgataḥ sukhī-karoti rāgataḥ.
+
+**TRANSLATION**
+
+Lord Krsna, who from a learned devotee heard of many kings imprisoned by Jarasandha, Lord Krsna, who met with Narada, Lord Krsna, whom Yudhisthira asked to arranged for a yajna, Lord Krsna, who heard Narada's advice that He should deliver His devotees, Lord Krsna, who on devoted Uddhava's advice went to the palace to kill Jarasandha, Lord Krsna, who, arriving with Bhima and Arjuna, and all of the disguised as brahmanas, begged Jarasandha for a duel, Lord Krsna, who arranged that Bhima fight with Jarasandha, Lord Krsna, who with a hint told Bhima how to kill Jarasandha, Lord Krsna, who thus killed Jarasandha, glorious Lord Krsna, who freed the imprisoned kings, Lord Krsna, who made all these endeavors successful, Lord Krsna, who delighted King Yudhisthira, Lord Krsna, who arranged for the Rajasuya-yajna, Lord Krsna, who was worshiped at the Rajasuya-yajna, Lord Krsna, who with the cakra killed Sisupala when he insulted the devotees and was no longer worthy to be forgiven, Lord Krsna, who saw the successful completion of the Rajasuya-yajna, famous Lord Krsna returned and with great love filled us, the people of Vraja, with bliss.
+
+**REMARKS/EXTRA INFORMATION:**
+
+No Extra Information available for this song!
+
+**UPDATED:** June 27, 2009

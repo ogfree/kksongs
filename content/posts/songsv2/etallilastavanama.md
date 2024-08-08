@@ -1,0 +1,45 @@
++++
+title = "Etal Lila Stava Nama Stotram"
+date = "2024-08-07"
++++
+
+# Etal Lila Stava Nama Stotram
+**[![](http://kksongs.org/image_files/image002.jpg)](http://kksongs.org/)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[E](http://kksongs.org/songs/song_e.html)**
+
+**Song Name: Etal Lila Stava Nama Stotram**
+
+**Official Name: Phala Srutih Verses 431 to 432**
+
+**Author:** [**Sanatana** **Goswami**](http://kksongs.org/authors/list/sanatana_g.html)
+
+**Book Name: [Krsna Lila Stava](http://kksongs.org/authors/krsnalilastava.html)**
+
+**Language: [Sanskrit](http://kksongs.org/language/list/sanskrit.html)**
+
+**LYRICS:**
+
+(1)
+
+etal-līlā-stavaḿ nāma stotraḿ śrī-kṛṣṇa tārakam
+
+praṇāmāṣṭottara-śate yo'rthāvagama-pūrvakam
+
+(2)
+
+kīrtayet so'cirād bhakto labhatāḿ kṛpayā tava
+
+rūpe nāmani līlāyām ākrīḍe’pi parāḿ ratim
+
+**TRANSLATION**
+
+1-2) O Krsna, these prayers are named the Krsna-lila-stava, and they have been written following the description formerly given (in the Srimad-Bhagavatam). These prayers contain one-hundred and eight obeisances to You, and the cause the reader to become liberated. O Lord, may those devotees who glorify You by reciting these prayers, quickly attain transcendental attraction to your form, name and pastimes, by Your mercy.
+
+**REMARKS/EXTRA INFORMATION:**
+
+This is actually a part of Obeisance 108, although some re-translators will put this song as a separate end. Nonetheless, this is the final prayer of the Krsna Lila Stava.
+
+**UPDATED:** June 26, 2009

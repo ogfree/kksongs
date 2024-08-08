@@ -1,0 +1,63 @@
++++
+title = "Nanopayana Tambula Gandhadi"
+date = "2024-08-07"
++++
+
+# Nanopayana Tambula Gandhadi
+**[![](http://kksongs.org/image_files/image002.jpg)](http://kksongs.org/)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[N](http://kksongs.org/songs/song_n.html)**
+
+**Song Name: Nanopayana Tambula Gandhadi**
+
+**Official Name: Obeisance 91 Verses 360 to 363**
+
+**Author:** [**Sanatana** **Goswami**](http://kksongs.org/authors/list/sanatana_g.html)
+
+**Book Name:** [**Krsna Lila Stava**](http://kksongs.org/authors/krsnalilastava.html)
+
+**Language:** [**Sanskrit**](http://kksongs.org/language/list/sanskrit.html)
+
+**LYRICS:**
+
+(1)
+
+nānopāyana-tāmbūla-gandhādi-vaṇig-arcita
+
+jaya citrāyitāśeṣa-pura-strī-gaṇa-vīkṣaka
+
+(2)
+
+jaya praphulla-nayana līlā-hasita-locana
+
+matta-nāgendra-gamana nāgarī-gaṇa-mohana
+
+(3)
+
+dhanuḥ-sthāna-prāśna-kara jayādbhuta-dhanur-dhara
+
+līlā-sajjīkṛteṣvāsa kaḿsa-kodaṇḍa-khaṇḍana
+
+(4)
+
+dhanū-rakṣaka-vṛnda-ghna kaḿsa-preṣita-sainya-han
+
+kaḿsātitrāsa-janaka śakaṭāvāsa-sańgata
+
+**TRANSLATION**
+
+1) O Lord Krsna, the mercantile men worshipped You by offering betel-nuts, aromatic scents and various presents, and all the amazed women gazed upon You. O Lord, all glories to You.
+
+2) O Lord Krsna, all glories unto You. You enquired where Kamsa's wonderful bow was kept, (and arriving at that place), You picked it up, playfully strung it, and broke it.
+
+3) O Lord Krsna, all glories unto You. You enquired where Kamsa's wonderful bow was kept, (and arriving at that place), You picked it up, playfully strung it, and broke it.
+
+4) O Lord Krsna, all glories unto You. Although You were very eager to go to the arena full of raised platforms constructed by Kamsa, the elephant Kuvalayapida obstructed Your path.
+
+**REMARKS/EXTRA INFORMATION:**
+
+No Extra Information available for this song!
+
+**UPDATED:** July 4, 2009

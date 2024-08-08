@@ -1,0 +1,235 @@
++++
+title = "Sarada Sasadhara"
+date = "2024-08-07"
++++
+
+# Sarada Sasadhara
+**[![](http://kksongs.org/image_files/image002.jpg)](http://kksongs.org/)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[S](http://kksongs.org/songs/song_s.html)**
+
+**Song Name: Sarada Sasadhara**
+
+**Official Name: Volume 5: Rasa Krita (Untitled Prayer to Rasa Rasika)**
+
+**Author:** [**Rupa** **Goswami**](http://kksongs.org/authors/list/rupa.html)
+
+**Book Name: [Stavamala](http://kksongs.org/authors/stavamala.html)**
+
+**Language: [Sanskrit](http://kksongs.org/language/list/sanskrit.html)**
+
+**LYRICS:**
+
+(1)
+
+śārada-śaśadhara-vīkṣaṇa-hṛṣṭaḥ
+
+parama-vilāsālibhir abhimṛṣṭaḥ
+
+vallava-ramaṇī-maṇḍala-bhāvaḥ
+
+prollāsaka-kala-muralī-rāvaḥ  
+
+(2)
+
+atha sakalābhir mada-vikalābhir
+
+niśi paribhūya svajanān bhūyaḥ
+
+aviruvatībhir nava-yuvatībhir
+
+vihitoddeśaḥ sundara-veśaḥ  
+
+(3)
+
+milita-mṛgākṣī-vāñchita-sākṣī\-
+
+kṛta-parihāsaḥ sphīta-vilāsaḥ
+
+tad amala-vāṇī-niśita-kṛpāṇī\-
+
+dalita-nikāraḥ kalita-vikāraḥ  
+
+(4)
+
+pramadottaralita-vallava-nārī\-
+
+mukha-cumbana-parirambhaṇa-kārī
+
+unnata-manasāḿ sudṛśāḿ māna\-
+
+prekṣaṇataḥ kalitāntardhānaḥ  
+
+(5)
+
+anukṛta-caritaḥ puline paritas
+
+taruṣu ca pṛṣṭaḥ kvāpi na dṛṣṭaḥ
+
+yavati-camūbhis tvaritam amūbhir
+
+muhur anugītaḥ kutuka-parītaḥ  
+
+(6)
+
+kākibhir ābhiḥ prārthita-sańgaḥ
+
+prakaṭita-mūrtir dhṛta-rati-rańgaḥ
+
+kim api nigūḍha-ruṣā paripṛṣṭaḥ
+
+kalitottara-vidhir alam upaviṣṭaḥ  
+
+(7)
+
+karuṇā-śīlaḥ khaṇḍita-pīlaḥ
+
+stavakita-līlaḥ kuvalaya-nīlaḥ
+
+dhṛta-mṛdu-hāsaḥ prema-vilāsas
+
+tata-tanu-vāsaḥ kalpita-rāsaḥ  
+
+(8)
+
+atha parikalpita-maṇḍala-bandhaḥ
+
+kusuma-śarāsana-vibhrama-kandaḥ
+
+yuvatī-yuga-yuga-subhaga-skandha\-
+
+nyasta-lasad-bhuja-daṇḍa-dvandvaḥ  
+
+(9)
+
+aliparivīte māruta-śīte
+
+vara-sańgīte bhuvanātīte
+
+bhūṣaṇatāra-dhvani-parisāra\-
+
+krānta-vanānte śaśi-ruci-kānte  
+
+(10)
+
+madhyaga-madhyaga-madhupa-virāji\-
+
+sphuṭa-campaka-tati-vibhrama-bhāji
+
+rāse kṛta-rucir anta-sthāyī
+
+veṇu-mukhādhara-pallava-dāyī  
+
+(11)
+
+stambhita-rākā-patir avikārān
+
+api sura-dārān madayann ārāt
+
+kutukākṛṣṭaś ciram abhivṛṣṭaḥ
+
+sapadi vilūnaiḥ sura-taru-sūnaiḥ  
+
+(12)
+
+atha kalpīkṛta-rajani-vihārī
+
+khastha-surāsura-vismaya-kārī 
+
+nija-nija-nikaṭa-sthiti-vijñāna\-
+
+pramudita-ramaṇī-kṛta-saḿmānaḥ  
+
+(13)
+
+nija-dṛg-bhańgī-kṣubhita-kurańgī\-
+
+nayanāmaṇḍala-guru-kuca-sańgī
+
+keli-vilolaḥ pracala-nicolaḥ
+
+sveda-jalāńkura-cāru-kapolaḥ  
+
+(14)
+
+kumuda-yutāyāḿ taraṇi-sutāyāḿ
+
+salila-vinoda-pravalita-modaḥ
+
+yuvati-nikāya-prokṣita-kāyaḥ
+
+śithilita-mālaḥ pulaka-karālaḥ  
+
+(15)
+
+atha vanamālī vara-vipinālī\-
+
+kuñja-niketana-vīkṣaṇa-śālī
+
+jayati vihāri niśi maṇi-hārī
+
+vraja-taruṇī-gaṇa-mānasa-hārī  
+
+(16)
+
+nata-jana-bandho jaya rasa-sindho
+
+vadanollasita-śrama-jala-bindo
+
+tvam akhila-devāvali-kṛta-sevā\-
+
+santatir adhamā vayam iha ke vā  
+
+(17)
+
+jaya jaya kuṇḍala-yuga-ruci-maṇḍala\-
+
+vṛta-gaṇḍa-sthala damitākhaṇḍala
+
+dhṛta-govardhana gokula-vardhana
+
+dehi ratiḿ me tvayi mura-mardana  
+
+**TRANSLATION**
+
+1) All glories to the Lord, who is happy to see the autumn moon, who appears with His transcendental pastimes, whose sweet flute-music arouses the ecstatic love of the beautiful gopis . . .
+
+2)  . . .who is very handsome, searching for whom all the beautiful young gopis, overwhelmed with amorous passion, without a sound left their families in the middle of the night, . . .
+
+3)  . . .who, seeing the desires of the doe-eyed gopis, playfully joked with them, who teased them, wounding them with the sharp dagger of His splendid words, only to be Himself wounded by them, . . .
+
+4)  . . .who embraced and kissed the delighted gopis, who, seeing that the beautiful-eyed gopis had become proud at heart, suddenly disappeared, . . .
+
+5) . . .whose pastimes the young gopis imitated on the Yamuna's shore, whom they could not see, about whom they inquired from the trees, the glories of whom they repeatedly and eagerly sang, . . .
+
+6)  . . . for whose company they plaintively begged, whose transcendental form appeared before them, who enjoyed their company, who was angrily asked "Why did You hide?" who answered, "What I did was for the best," who seated Himself among them, . . .
+
+7) . . .who is naturally very merciful, who abandoned the gopis, whose pastimes are a bunch of blossoming flowers, who is as dark as a blue lotus, who smiles gently, who enjoys pastimes of love, who expanded His form many times, who performed the rasa dance, . . .
+
+8) . . .who had the gopis form a great circle, who is the origin of all transcendental amorous pastimes, who placed  His splendid arm on the shoulder of each young gopi, . . .
+
+9-10) . . .who, at the edge of the forest, which was filled with gopis, which was cooled by a pleasant breeze,  which was beyond the boundaries of the material world, and which was filled with graceful music, the jingling of many ornaments, and black bees wandering among many campaka flowers, gracefully placed His flower-blossom lips to the flute, . . .
+
+11)  . . .who stunned the moon, who from far away aroused the amorous desires of the immortal wives of the demigods, who was drawn into many transcendental pastimes for a long time, who was showered with many kalpa-vrksa flower petals, . . .
+
+12) . . .who enjoyed transcendental pastimes in a night He made as long as a kalpa, who filled with wonder the demigods and demons in the sky, who was worshiped by all the beautiful gopis, each jubilantly aware that He was standing by her side, . . .
+
+13) . . .whose waves of amorous glances agitated the doe-eyed gopis, who touched their full breasts, who enjoyed amorous pastimes with them, who is very powerful, whose handsome cheeks were decorated with perspiration, . . .
+
+14)  . . .who enjoyed water-pastimes in the kumuda\-filled Yamuna, who splashed the transcendental bodies of the young gopis, whose flower garland became broken, whose bodily hairs stood erect with
+
+joy, . . .
+
+15)  . . .who wears a garland of forest flowers, who likes to see the beautiful forests, who enjoys pastimes at night, who wears a necklace of jewels, and who charms the hearts of the young girls of Vraja! All glories to Him!
+
+16) O friend of the surrendered souls, O ocean of nectar, O Lord whose face is splendid with drops of perspiration, all glories to You! You are served by all the demigods. Who are we, the fallen souls, in comparison to them?
+
+17) O Lord whose cheeks are splendidly decorated with earrings, O Lord who defeated Indra, O Lord who lifted Govardhana Hill, O Lord who made Gokula prosper, all glories to You! All glories to You! O Lord who crushed the demon Mura, please give to me love for You.
+
+**REMARKS/EXTRA INFORMATION:**
+
+No Extra Information available for this song!
+
+**UPDATED:** July 9, 2009

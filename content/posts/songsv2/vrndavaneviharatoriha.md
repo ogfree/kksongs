@@ -1,0 +1,139 @@
++++
+title = "Vrndavane Viharator Iha Keli Kunje"
+date = "2024-08-07"
++++
+
+# Vrndavane Viharator Iha Keli Kunje
+**[![](http://kksongs.org/image_files/image002.jpg)](http://kksongs.org/)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[V](http://kksongs.org/songs/song_v.html)**
+
+**Song Name: Vrndavane Viharator Iha Keli Kunje**
+
+**Official Name: Volume 2 Sri Gandharva Samprarthanastakam**
+
+**Author:** [**Rupa** **Goswami**](http://kksongs.org/authors/list/rupa.html)
+
+**Book Name: [Stavamala](http://kksongs.org/authors/stavamala.html)**
+
+**Language: [Sanskrit](http://kksongs.org/language/list/sanskrit.html)**
+
+**LYRICS:**
+
+(1)
+
+vṛndāvane viharator iha keli-kuñje
+
+matta-dvipa-pravara-kautuka-vibhrameṇa
+
+sandarśayasva yuvayor vadanāravinda\-
+
+dvandvaḿ vidhehi mayi devi kṛpāḿ prasīda
+
+(2)
+
+hā devi kāku-bhara-gadgadayādya vācā
+
+yāce nipatya bhuvi daṇḍavad udbhaṭārtiḥ
+
+asya prasādam abudhasya janasya kṛtvā
+
+gāndharvike nija-gaṇe gaṇanāḿ vidhehi
+
+(3)
+
+śyāme ramā-ramaṇa-sundaratā-variṣṭha\-
+
+saundarya-mohita-samasta-jagaê-janasya
+
+śyāmasya vāma-bhuja-baddha-tanuḿ kadāhaḿ
+
+tvām indirā-virala-rūpa-bharāḿ bhajāmi
+
+(4)
+
+tvāḿ pracchadena mudira-cchavinā pidhāya
+
+mañjīra-mukta-caraṇāḿ ca vidhāya devi
+
+kuñje vrajendra-tanayena virājamāne
+
+naktaḿ kadā pramuditām abhisārayiṣye
+
+(5)
+
+kuñje prasūna-kula-kalpita-keli-talpe
+
+samviṣṭayor madhura-narma-vilāsa-bhājoḥ
+
+loka-trayābharaṇayoś caraṇāmbujāni
+
+samvāhayiṣyati kadā yuvayor jano 'yam
+
+(6)
+
+tvat-kunda-rodhasi vilāsa-pariśramena
+
+svedāmbu-cumbi-vadanāmburuha-śriyau vām
+
+vṛndāvaneśvari kadā taru-mūla-bhājau
+
+samvījayāmi camarī-caya-cāmareṇa
+
+(7)
+
+līnāḿ nikuñja-kuhare bhavatīḿ mukunde
+
+citraiva sūcitavatī rucirākṣi nāham
+
+bhugnā bhruvaḿ na racayeti mṛṣā-ruṣaḿ tvām
+
+agre vrajendra-tanayasya kadānuneṣye
+
+(8)
+
+vāg-yuddha-keli-kutuke vraja-rāja-sūnuḿ
+
+jitvonmadām adhika-darpa-vikāsi-jalpām
+
+phullābhir ālibhir analpam udīryamāṇa\-
+
+stotrāḿ kadā nu bhavatīm avalokayiṣye
+
+(9)
+
+yaḥ ko 'pi suṣṭhu vṛṣabhānu-kumārikāyāḥ
+
+samprārthanāṣṭakam idaḿ paṭhati prapannaḥ
+
+sā preyasā saha sametya dhṛta-pramodā
+
+tasya prasāda-laharīm urarī-karoti
+
+**TRANSLATION**
+
+1) O Goddess! Be merciful to me and reveal Your lotus face to me when You and Sri Krsna play in the playgroves of Vrndavana, enjoying like intoxicated, blissful Lordly elephants!
+
+2) O Goddess! In great distress I prostrate myself before You, falling ont he ground, praying piteously unto You with faltering voice. O Gandharvike! After You bestowed Your mercy on this fool, count him (her) amongst Your own people!
+
+3) O Syame (Sri Radhe)! When will I worship You as Indira (Laksmi), when Your beautiful body is bound up by Syama's leftarm? Krsna's beauty enchants all the people of the world and is even greater than that of Rama-ramana (Lord Visnu, Laksmi's husband).
+
+4) O Goddess! When can I arrange for Your blissful nocturnal meeting with the son of the king of Vraja in the grove by covering Your body with a cloudblue sari and by removing theanklebells from Your feet?
+
+5) When will this person serve Your lotus feet, that adorn the three worlds by massaging them, as You are sitting together on a playbed made of flowers in a grove, while You are making sweet jokes with each other?
+
+6) O Queen of Vrndavana! When can I fan You with a yaktail fan with a jeweled rod when You and Sri Krsna are sitting under a tree, Your lotus-like faces beautified by drops of perspiration from fatigue after Your pastimes on the shore of Your pond (Sri Radha Kund)?
+
+7) O beautiful-eyed One! It was not me who told Mukunda in which corner of the kunja You were hiding! Citra did it! Don't frown Your eyebrows at me in false anger! When can I take You before the son of the king of Vraja?
+
+8) When You defeat Krsna in a joking argument, You show even greater pride, extending Your proud words to Your blooming friends, who will praise You. When will I see You like this?
+
+9) Anyone who nicely recites these eight prayers to the daughter of king Vrsabhanu will be accepted by Her in a wave of mercy and She will joyfully appear before her with Her lover.
+
+**REMARKS/EXTRA INFORMATION:**
+
+No Extra Information available for this song!
+
+**UPDATED:** July 4, 2009

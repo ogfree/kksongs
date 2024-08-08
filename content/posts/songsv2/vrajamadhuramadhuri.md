@@ -1,0 +1,91 @@
++++
+title = "Vraja Madhura Madhuri Hrasita"
+date = "2024-08-07"
++++
+
+# Vraja Madhura Madhuri Hrasita
+**[![](http://kksongs.org/image_files/image002.jpg)](http://kksongs.org/)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[V](http://kksongs.org/songs/song_v.html)**
+
+**Song Name: Vraja Madhura Madhuri Hrasita**
+
+**Official Name: Vollume 2 Chapter 16 Verse 117**
+
+**Author:** [**Jiva** **Goswami**](http://kksongs.org/authors/list/jivagoswami.html)
+
+**Book Name: [Gopala Campu](http://kksongs.org/authors/gopalacampu.html)**
+
+**Language: [Sanskrit](http://kksongs.org/language/list/sanskrit.html)**
+
+**LYRICS:**
+
+(1)
+
+vraja-madhura-mādhurī-hrasita-para-kāmanam
+
+manasi nṛpa-vaibhavaḿ dadhatam ati-vāmanam
+
+pariṇayana-vāñchatā-rahita-manasācitam
+
+agamad atha kaścana dvijanir asurāhitam
+
+(2)
+
+nija-nṛpati-dehajā-vacanam upasandiśan
+
+sa tad-ucita-caturīm amṛtam iva nirviśan
+
+tam anu nijam āyayau nagaram ita-sammadaḥ
+
+avadad api taḿ harer abhigamana-sampadaḥ
+
+(3)
+
+atha sa-sukha-bhīṣmajā muhur anamad atra-sā
+
+dvijam amukam icchati nija-bhāvikam atra sā
+
+iha mahasi sailajā-paricaraṇa-dambhikā
+
+bhavitum atha bhīṣmajā hari-caraṇa-lambhikā
+
+(4)
+
+saratha-hariṇāhṛtārucad amala-rociṣā
+
+ripu-nicayam ācinon malina-mukha-śociṣā
+
+magadha-mukha-śātrave raṇa-vimukha-bhāvake
+
+yudham adhīta rukmavān asura-paribhāvake
+
+(5)
+
+vyadhīta khalu rukmiṇaḿ kṛta-vāpana-muṇḍanam
+
+na param ajitas tathākṛta-vikṛta-tuṇḍakam
+
+murajid atha nirjayan sa-nṛpa-caya-bhīṣmajam
+
+agamad atha tan nijaḿ nagaram ita-bhīṣmajam
+
+**TRANSLATION**
+
+1) One day a brahmana approached Lord Krsna, whose sweet pastimes in Vraja had ended, who was the demons' enemy, and who, in His heart thinking of Himself as a king, had no desire for marriage.
+
+2) The brahmana recited a message from Princess Rukmini, and Lord Krsna replied with eloquent words sweet like nectar. The happy brahmana returned to his own city and spoke to Rukmini the good news of Lord Krsna's arrival there.
+
+3) Bowing again and again before the brahmana, joyful Rukmini desired that he become happy and prosperous. Yearning to attain Lord Krsna's feet, Rukmini worshiped Goddess Parvati.
+
+4) Riding on a chariot, Lord Krsna gloriously kidnaped Rukmini as His enemies complained with unhappy faces. Lord Krsna made Jarasandha and His other enemies turn from the battle, and only Rukmi was willing to fight with Krsna, the crusher of the demons.
+
+5) Lord Krsna defeated Rukmi, shaved his head, and made him very odd-looking. Defeated by Krsna, Rukmi and the kings returned to their own cities.
+
+**REMARKS/EXTRA INFORMATION:**
+
+No Extra Information available for this song!
+
+**UPDATED:** July 4, 2009

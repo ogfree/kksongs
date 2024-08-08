@@ -1,0 +1,47 @@
++++
+title = "Jaya Yasoda-nandana Krsna Gopala Govinda"
+date = "2024-08-07"
++++
+
+# Jaya Yasoda-nandana Krsna Gopala Govinda
+[**![http://kksongs.org/image_files/image002.jpg](http://kksongs.org/image_files/image002.jpg)**](http://kksongs.org/)
+
+**_Krsna Kirtana Songs est. 2001_**                                                                                                                                                 **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **⇒** **[Song Lyrics](http://kksongs.org/lyrics.html)** **⇒** **[J](http://kksongs.org/songs/song_j.html)**
+
+**Song Name: Jaya Yasoda Nandana Krsna Gopala Govinda**
+
+**Official Name: Sri Krsnaer Vimsottara Sata Nama Song 6**
+
+**Author:** [**Bhaktivinoda Thakura**](http://kksongs.org/authors/list/bhaktivinoda.html)
+
+**Book Name: [Gitavali](http://kksongs.org/authors/literature/gitavali.html)**
+
+**Language: [Bengali](http://kksongs.org/language/list/bengali.html)**
+
+**LYRICS**
+
+(1)
+
+jaya yaśodā-nandana kṛṣṇa gopāla govinda
+
+jaya madana-mohana hare ananta mukunda
+
+(2)
+
+jaya acyuta mādhava rām bṛndābana-candra
+
+jaya muralī-vadana śyāma gopī-janānanda
+
+**TRANSLATION**
+
+1) All glories to Krsna, the son of Mother Yasoda, the cowherd boy and giver of pleasure to the cows! All glories to the conqueror of Cupid, Lord Hari, who takes away all inauspiciousness, who is unlimited, and the awarder of liberation!
+
+2) All glories to the infallible Lord, husband of the goddess of fortune, the supreme enjoyer, and the moon of Vrndavana! All glories to Krsna, who always holds a flute to His mouth, who is the color of a dark blue raincloud, and is the bliss of the gopis!
+
+**Remarks/ Extra Information****:**
+
+No Extra Information available for this song!
+
+**UPDATED:** July 5, 2017

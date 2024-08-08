@@ -1,0 +1,71 @@
++++
+title = "Nitai Gaura Nama"
+date = "2024-08-07"
++++
+
+# Nitai Gaura Nama
+**![](http://kksongs.org/image_files/image002.jpg)**
+
+**_Krsna_** **_Kirtana Songs est. 2001_**                                                                                                                                                      **_www.kksongs.org_**
+
+**[Home](http://kksongs.org/)** **à** **[Song Lyrics](http://kksongs.org/lyrics.html)** **à** **[N](http://kksongs.org/songs/song_n.html)**
+
+**Song Name: Nitai Gaura Nama**
+
+**Official Name: None**
+
+**Author:** [**Locana** **Dasa Thakura**](http://kksongs.org/authors/list/locanadasa.html)
+
+**Book Name: None**
+
+**Language: [Bengali](http://kksongs.org/language/list/bengali.html)**
+
+**LYRICS:**
+
+(1)
+
+nitāi-gaura-nāma, ānandera dhāma, jei jana nāhi laya
+
+tāre yama-rāya, dhare la’ye jāya, narake ḍubāya tāya
+
+(2)
+
+tulasīra hāra, na pare je chāra, yamālaye vāsa tā’ra
+
+tilaka dhāraṇa, na kare je jana, vṛthāya janama tā’ra
+
+(3)
+
+nā laya harināma, vidhi tā’re vāma, pāmara pāṣaṇḍa-mati
+
+vaiṣṇava-sevana, nā kare je jana, ki ha’be tāhāra gati
+
+(4)
+
+guru-mantra sāra, kara ei bāra, vrajete haibe vāsa
+
+tamo-guṇa jā’be, sattva-guṇa pā’be, haibe kṛṣṇera dāsa
+
+(5)
+
+e dāsa locana, bale anukṣana, (nitāi) gaura-guṇa gāo sukhe
+
+ei rase jā’ra, rati nā haila, cūṇa kāli tā’ra mukhe
+
+**TRANSLATION**
+
+1) The holy names of Nitai and Gaura are the abode of all jubilation. Those who never utter these names are taken by Yama Maharaja and immersed in the hellish planets.
+
+2) Those who never wear tulasi neckbeads take their permanent residence in the abode of Yama Maharaja, and those who never adorn their foreheads with tilaka live their lives in vain.
+
+3) Those who never chant harinama have an unfavorable destiny. They are fallen and their stone-like hearts are filled with deceit. And what will be the destination of those who never serve the Vaisnavas?
+
+4) Now the time has come to receive diksa from Sri Guru. If one chants these mantras carefully, one will come to live in Vraja forever. The mode of ignorance will go, goodness will come in the heart, and one will become the eternal servant of Krsna.
+
+5) This Locana dasa instructs everyone to always chant Gaura-Nitai’s holy names. Those who have no affection for gaura-rasa will be publicly defamed – their faces will be covered with lime and black tar.
+
+**REMARKS/EXTRA INFORMATION:**
+
+No Extra Information available for this song!
+
+**UPDATED:** July 4, 2009

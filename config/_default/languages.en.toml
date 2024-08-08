@@ -8,16 +8,16 @@ title = "KKsongs"
   isoCode = "en"
   rtl = false
   dateFormat = "2 January 2006"
-   logo = "img/logo.png"
-   secondaryLogo = "img/secondary-logo.png"
-   description = "My awesome website"
+   logo = "resources/_gen/images/img/K.png"
+   secondaryLogo = "resources/_gen/images/img/K.png"
+   description = "Un-official KKsongs"
   # copyright = "Copy, _right?_ :thinking_face:"
 
  [author]
    name = "kksongs"
-   image = "img/blowfish_logo.png"
-   headline = "I'm only human"
-   bio = "A little bit about you"
+   image = "img/K.png"
+   headline = "Un-official KKsongs"
+   bio = "Un-official KKsongs"
    links = [
      { email = "mailto:hello@your_domain.com" },
      { link = "https://kksongs.org/" },
