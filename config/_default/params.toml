@@ -8,10 +8,10 @@
 colorScheme = "autumn"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = true
-title = "My Site Name"
+title = "Kksongs"
 
 enableSearch = true
-enableCodeCopy = false
+enableCodeCopy = true
 
 # mainSections = ["section1", "section2"]
 # robots = ""
@@ -41,10 +41,10 @@ disableTextInHeader = false
   #homepageImage = "IMAGE.jpg" # used in: hero, and card
   showRecent = true
   showRecentItems = 5
-  showMoreLink = false
-  showMoreLinkDest = "/posts"
+  showMoreLink = true
+  showMoreLinkDest = "/posts/songs"
   cardView = false
-  cardViewScreenWidth = false
+  cardViewScreenWidth = true
   layoutBackgroundBlur = false # only used when layout equals background
 
 [article]
