@@ -15,7 +15,7 @@ title = "KKsongs"
 
  [author]
    name = "kksongs"
-   image = "img/K.png"
+   image = "../assets/images/K.png"
    headline = "Un-official KKsongs"
    bio = "Un-official KKsongs"
    links = [
