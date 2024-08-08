@@ -1,6 +1,6 @@
 +++
 title = "Vande Visvambhara Pada Kamalam"
-date = "2024-08-07"
+date = "2024-08-08"
 +++
 
 # Vande Visvambhara Pada Kamalam

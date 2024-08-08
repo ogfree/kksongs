@@ -11,27 +11,27 @@
 # ordered by weight from lowest to highest.
 
 [[main]]
-  name = "Songs"
+  name = " All Songs"
   pageRef = "posts"
   weight = 10
 
   
 
-#[[main]]
-#  name = "Parent"
-#  weight = 20
+[[main]]
+  name = "Songs"
+  weight = 20
 
-#[[main]]
-#  name = "example sub-menu 1"
-#  parent = "Parent"
-#  pageRef = "posts"
-#  weight = 20
+[[main]]
+  name = "Songs English"
+  parent = "Songs"
+  pageRef = "songsv2"
+  weight = 20
 
-#[[main]]
-#  name = "example sub-menu 2"
-#  parent = "Parent"
-#  pageRef = "posts"
-#  weight = 20
+[[main]]
+  name = "Songs Unicode"
+  parent = "Songs"
+  pageRef = "unicode"
+  weight = 20
 
 #[[subnavigation]]
 #  name = "An interesting topic"

@@ -1,6 +1,6 @@
 +++
 title = "Krsna Deva Bhavantam Vande"
-date = "2024-08-07"
+date = "2024-08-08"
 +++
 
 # Krsna Deva Bhavantam Vande

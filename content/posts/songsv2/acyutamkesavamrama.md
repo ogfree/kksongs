@@ -1,6 +1,6 @@
 +++
 title = "Acyutam Kesavam Rama Narayanam"
-date = "2024-08-07"
+date = "2024-08-08"
 +++
 
 # Acyutam Kesavam Rama Narayanam

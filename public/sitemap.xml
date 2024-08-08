@@ -3,6 +3,48 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
 
   <url>
+    <loc>http://localhost:1313/posts/songsv2/acyutamkesavamrama/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
+    <loc>http://localhost:1313/posts/songsv2/adharammadhuram/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
+    <loc>http://localhost:1313/posts/songsv2/bhajevrajaikamandama/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
+    <loc>http://localhost:1313/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
+    <loc>http://localhost:1313/posts/songsv2/krsnadevabhavantam/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
+    <loc>http://localhost:1313/posts/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
+    <loc>http://localhost:1313/posts/songsv2/vandevisvambhara/</loc>
+    <lastmod>2024-08-08T00:00:00+00:00</lastmod>
+    <changefreq>daily</changefreq>
+    <priority>0.5</priority>
+  </url>
+  <url>
     <loc>http://localhost:1313/posts/songsv2/cuandoohcuandoesediavendra/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
@@ -99,12 +141,6 @@
     <priority>0.5</priority>
   </url>
   <url>
-    <loc>http://localhost:1313/posts/songsv2/acyutamkesavamrama/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
     <loc>http://localhost:1313/posts/unicode/acyutamkesavamrama_deva/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
@@ -118,12 +154,6 @@
   </url>
   <url>
     <loc>http://localhost:1313/posts/unicode/adharammadhuram_deva/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
-    <loc>http://localhost:1313/posts/songsv2/adharammadhuram/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
     <priority>0.5</priority>
@@ -1444,12 +1474,6 @@
   </url>
   <url>
     <loc>http://localhost:1313/posts/songsv2/bhajaneutsahayarabhitara/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
-    <loc>http://localhost:1313/posts/songsv2/bhajevrajaikamandama/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
     <priority>0.5</priority>
@@ -5493,12 +5517,6 @@
     <priority>0.5</priority>
   </url>
   <url>
-    <loc>http://localhost:1313/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
     <loc>http://localhost:1313/posts/songsv2/kohabunkisaramakibat/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
@@ -5590,12 +5608,6 @@
   </url>
   <url>
     <loc>http://localhost:1313/posts/unicode/krsnacaitanyaadvaitaprabhu_beng/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
-    <loc>http://localhost:1313/posts/songsv2/krsnadevabhavantam/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
     <priority>0.5</priority>
@@ -7744,12 +7756,6 @@
   </url>
   <url>
     <loc>http://localhost:1313/posts/songsv2/poresokrsnavengoatuspies/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
-    <loc>http://localhost:1313/posts/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
     <priority>0.5</priority>
@@ -10876,12 +10882,6 @@
   </url>
   <url>
     <loc>http://localhost:1313/posts/unicode/vandekrsnanandakumar_beng/</loc>
-    <lastmod>2024-08-07T00:00:00+00:00</lastmod>
-    <changefreq>daily</changefreq>
-    <priority>0.5</priority>
-  </url>
-  <url>
-    <loc>http://localhost:1313/posts/songsv2/vandevisvambhara/</loc>
     <lastmod>2024-08-07T00:00:00+00:00</lastmod>
     <changefreq>daily</changefreq>
     <priority>0.5</priority>

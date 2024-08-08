@@ -1,6 +1,6 @@
 +++
 title = "Adharam Madhuram Vadanam Madhuram"
-date = "2024-08-07"
+date = "2024-08-08"
 +++
 
 # Adharam Madhuram Vadanam Madhuram
