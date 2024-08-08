@@ -1,0 +1,723 @@
++++ 
+title = "Sarac Candra Bhrantim"
+date = "2024-08-07"
++++
+
+Krsna
+ 
+Kirtana
+ 
+Songs
+
+est. 2001
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â  
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â  
+www.kksongs.org
+
+
+
+
+
+
+
+
+Home
+
+
+Ã 
+ 
+Song Lyrics
+ 
+Ã 
+ 
+S
+
+
+Song Name: 
+Sarac
+ 
+Candra
+ 
+Bhrantim
+
+
+Official Name: 
+Nityanandastakam
+
+
+Author: 
+Vrndavana
+ 
+Dasa
+ 
+Thakura
+
+
+Book Name: None
+
+
+Language: 
+Sanskrit
+
+
+ 
+
+
+LYRICS:
+
+
+(1)
+
+
+sarac-candra-bhrāntim
+́ 
+sphurad-amala-kāntim
+́ 
+gaja-gatim
+́
+
+
+hari-premonmattam
+́
+
+dhṛta-parama-sattvam
+́ 
+smita-mukham
+
+
+sadāghūrṇan-netram
+́ 
+kara-kalita-vetram
+́
+kali-
+bhidam
+́
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(2)
+
+
+rasānām
+
+
+āgāram
+́ 
+svajana-gaṇa-sarvasvam
+
+
+atulam
+́
+
+
+tadīyaika-prāṇa-pramita-vasudhā-jāhnava-patim
+
+
+sadā-premonmādam
+́ 
+param
+ 
+aviditam
+́
+
+manda-manasām
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(3)
+
+
+śacī-sūnu-preṣṭham
+́ 
+nikhila-jagad-iṣṭam
+́
+
+sukha-mayam
+́
+
+
+kalau
+ 
+majjaj-jivoddharaṇa-karaṇoddāma-karuṇam
+
+
+harer
+ 
+ākhyānād
+ 
+vā
+ 
+bhava-jaladhi-garvonnati-haram
+́
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(4)
+
+
+aye
+ 
+bhrātar
+ 
+nīṇām
+́ kali-
+kaluṣiṇām
+́
+
+kim
+́ 
+nu
+ 
+bhavitā
+
+
+tathā
+ 
+prāyaścittam
+́ 
+racaya
+
+
+yad-anāyāsata
+ 
+ime
+
+
+vrajanti
+ 
+tvām
+ 
+ittham
+́ 
+saha
+ 
+bhagavatā
+ 
+mantrayati
+ 
+yo
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(5)
+
+
+yatheṣṭham
+́ re 
+bhrātah
+̣ 
+kuru
+ 
+hari-hari-dhvānam
+ 
+aniśam
+́
+
+
+tato
+ 
+vah
+̣ 
+saḿsārāmbudhi-taraṇa-dāyo
+
+
+mayi
+ 
+laget
+
+
+idam
+́ 
+bāhu-sphoṭair
+ 
+aṭati
+
+
+raṭayan
+ yaḥ 
+pratigṛham
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(6)
+
+
+balāt
+ 
+saḿsārāmbhonidhi-harana-kumbhodbhavam
+ 
+aho
+
+
+satām
+́ 
+śreyaḥ-sindhūnnati-kumuda-bandhum
+́ 
+samuditam
+́
+
+
+khala-śreṇī-sphūrjit-timira-hara-sūrya-prabham
+ 
+aham
+́
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(7)
+
+
+naṭantam
+́ 
+gāyantam
+́
+
+harim
+ 
+anuvadantam
+́ 
+pathi
+ 
+pathi
+
+
+vrajantam
+́ 
+paśyantam
+́
+
+svam
+ 
+api
+
+
+na
+ 
+dayantam
+́ 
+jana-gaṇam
+
+
+prakurvantam
+́ 
+santam
+́ 
+sa-karuṇa-dṛg-antam
+́ 
+prakalanād
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(8)
+
+
+su-bibhrāṇam
+́ 
+bhrātuh
+̣ 
+kara-sarasijam
+́
+
+komalataram
+́
+
+
+mitho
+ 
+vaktrālokocchalita-paramānanda-hṛdayam
+
+
+bhramantam
+́ 
+mādhuryair
+ 
+ahaha
+ 
+madayantam
+́ 
+pura-janān
+
+
+bhaje
+ 
+nityānandam
+́ 
+bhajana-taru-kandam
+́
+
+niravadhi
+
+
+ 
+
+
+(9)
+
+
+rasānām
+́ 
+ādhāram
+́
+
+rasika-vara-sad-vaiṣṇava-dhanam
+́
+
+
+rasāgāram
+́ 
+sāram
+́ 
+patita-tati-tāram
+́ 
+smaraṇatah
+̣
+
+
+param
+́ 
+nityānandāṣṭakam
+
+
+idam
+ 
+apūrvam
+́ 
+pathati
+ yaḥ
+
+
+tad-
+ańghri-dvandvābjam
+́ 
+sphuratu
+ 
+nitarām
+́ 
+tasya
+ 
+hṛdaye
+
+
+ 
+
+
+TRANSLATION
+
+1) I perpetually worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of the 
+Krsna-bhakti
+
+tree, whose bright face mocks the full autumn moon, whose pure complexion
+glistens, whose gait is like that of a maddened elephant, who is always
+intoxicated in 
+Krsna-prema
+, who embodies pure
+spiritual energy, whose face holds a gentle smile, whose eyes are always
+rolling due to His absorption in 
+Krsna-prema
+, whose
+lotus hand holds a glowing staff, and who, by the performance of 
+nama-sankirtana
+, pierces the influence of Kali-
+yuga
+.
+
+
+
+2) I perpetually worship Sri Nityananda Prabhu, the root of the Krsna-bhakti
+tree, who is the mainstay of all the rasas, who is everything to His devotees,
+who is beyond compare, who is the master of both 
+Vasudha
+
+and 
+Jahnava-devi
+, who consider Him more dear than
+their own lives, who is always maddened in 
+Krsna-prema
+,
+and who is unknown only to those of meager intelligence.
+
+
+
+3) I perpetually worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of the 
+Krsna-bhakti
+
+tree, who is very dear to Sri 
+Saci-nandana
+, who is
+worshipped by the entire universe, who is the embodiment of happiness, who
+possesses infinite mercy for delivering the souls who are drowning in the age
+of Kali, and who, by the performance of 
+sri-harinama-sankirtana
+,
+thwarts the progressing false pride of the ocean of repeated birth and death.
+
+
+
+4) I perpetually worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of the 
+Krsna-bhakti
+
+tree, who said to Sri Krsna 
+Caitanya
+, "Hey
+brother 
+Gauranga
+! What will be the destination of the
+sinful souls of Kali-
+yuga
+ and how will 
+theyt
+ be redeemed? Please devise a method by which they will
+easily attain 
+You
+."
+
+
+
+5) I perpetually worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of the 
+Krsna-bhakti
+
+tree, who wandered around 
+Bengal
+ and, approaching the door of each and every home,
+threw open His arms and exclaimed, "O brothers! All of you should eternally
+perform 
+sri-harinama-sankirtana
+ together. By doing
+so, I will take the responsibility to deliver you all from the ocean of
+material existence."
+
+
+
+6) I eternally worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of the 
+Krsna-bhakti
+
+tree, who is the 
+Agastya
+ 
+Muni
+
+who forcibly swallows the ocean of repeated birth and death, who is a rising
+full moon which increases the ocean of the saintly persons' welfare, and who is
+a sun which dissipates the darkness of ignorance cast by the various classes of
+miscreants.
+
+
+
+
+Â 
+7) I eternally worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of
+the tree of 
+Krsna-bhakti
+, who wandered on every path
+in 
+Bengal
+ dancing, singing, and calling out "
+Hari
+ 
+bol
+! 
+Hari
+
+
+bol
+!" and who lovingly bestowed merciful
+sidelong glances upon those who were not compassionate to even their own
+selves.
+
+
+
+8) I eternally worship Sri 
+Nityananda
+ 
+Prabhu
+, the root of the 
+Krsna-bhakti
+
+tree, who held the supremely soft lotus-hand of His brother Sri 
+Gauranga
+ 
+Mahaprabhu
+, whose heart
+became filled with the highest bliss when the two brothers gazed into each
+other's faces, and who wandered here and there delighting the townspeople with
+His sweetness.
+
+
+
+9) May Sri 
+Nityananda
+ 
+Prabhu
+
+place His lotus feet in the heart of one who lovingly recites this
+unprecedented 
+Nityanandastaka
+, which is the reservoir
+of 
+rasa
+, the greatest treasure of the most exalted of
+
+rasika
+ 
+Vaisnavas
+, and the
+storehouse of the essence of 
+bhakti-rasa
+. This 
+astaka
+ is sung in the melody known as '
+Sikharini
+".
+
+
+ 
+
+
+REMARKS/EXTRA INFORMATION:
+
+
+Special
+thanks to 
+Syama
+ 
+Jivani
+ 
+Devi
+ 
+Dasi
+ for the uploading of
+this song.
+
+
+ 
+
+
+According
+to the final verse, this song is to be sung in a melody known as Â“
+Sikharini
+.Â”
+
+
+ 
+
+
+FOREIGN TRANSLATIONS:
+
+
+Roaming About His Spotless Complexion
+ (ENGLISH)
+
+
+ 
+
+
+UPDATED:
+ July 9, 2009

@@ -1,0 +1,306 @@
++++ 
+title = "Jo Tum Toro Piya"
+date = "2024-08-07"
++++
+
+Krsna
+ 
+Kirtana
+ 
+Songs
+
+est. 2001
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â  
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â  
+www.kksongs.org
+
+
+
+
+
+
+
+
+Home
+
+
+Ã 
+ 
+Song Lyrics
+ 
+Ã 
+ 
+J
+
+
+Song Name: Jo 
+Tum
+ Toro 
+Piya
+ 
+
+
+Official Name: None
+
+
+Author: 
+Mira 
+Bai
+
+
+Book Name: None
+
+
+Language: 
+Braja
+
+
+Bhasa
+
+
+ 
+
+
+LYRICS:
+
+
+(
+refrain
+)
+
+
+jo
+ 
+tum
+ 
+toro
+ 
+piyā
+
+
+maiń
+ 
+nā
+ 
+hī
+ 
+torūn
+̣ re
+
+
+toso
+ 
+prīta
+ tore 
+kṛṣṇa
+
+
+kauna
+ 
+sańga
+ 
+jorūn
+̣ re
+
+
+ 
+
+
+(1)
+
+
+tum
+ 
+bhae
+ 
+taruvara
+ 
+mai
+ń
+
+
+bhaī
+ 
+pańkhiyā
+
+
+tum
+ 
+bhae
+ 
+sarovara
+ 
+maiń
+
+
+bhaī
+ 
+machiyā
+
+
+tum
+ 
+bhae
+ 
+girivara
+ 
+maiń
+
+
+bhaī
+ 
+cārā
+
+
+tum
+ 
+bhaye
+ 
+candā
+ 
+maiń
+ 
+bhaī
+ 
+cakorā
+
+
+ 
+
+
+(2)
+
+
+tum
+ 
+bhae
+ 
+motī
+ 
+prabhu
+ ham 
+bhaye
+ 
+dhāgā
+
+
+tum
+ 
+bhae
+ 
+sonā
+ ham 
+bhaye
+ 
+suhāgā
+
+
+mīrā
+ 
+ke
+ 
+prabhu
+ 
+bṛja
+
+
+ke
+ 
+bāsī
+
+
+tuma
+ mere 
+ṭhākura
+ 
+maiń
+ 
+terī
+ 
+dāsī
+
+
+ 
+
+
+TRANSLATION
+
+
+Refrain: Even though 
+You
+ have broken this bond, I will not break this bond. If I break
+my bond of love to You, 
+Krsna
+, who else can I form
+this bond with?
+
+
+ 
+
+
+1) You are the great tree
+and I am the bird. You are the lake and I am the fish. You are the mountain and
+I am the stream. You are the moon and I am the 
+cakora
+
+bird that stares at the moon.
+
+
+ 
+
+
+2) You are the pearl and I
+am the thread. You are the gold and I am the benefit. MiraÂ’s Lord is a resident
+of 
+Vraja
+. You are my Lord and I am 
+Your
+
+maidservant.
+
+
+ 
+
+
+REMARKS/EXTRA INFORMATION:
+
+
+This
+song was features in three films: 
+Jhanak
+ 
+Jhanak
+ 
+Payal
+ 
+Baje
+
+(1957), 
+Meera
+ (1979), and 
+Silsila
+
+(1981). 
+
+
+ 
+
+
+Mira 
+Bai
+ was inspired by 
+Rai
+ 
+DasaÂ’s
+ song Â“
+Jo 
+Tum
+ Toro Ram
+.Â”
+
+
+ 
+
+
+UPDATED:
+ July 16, 2009

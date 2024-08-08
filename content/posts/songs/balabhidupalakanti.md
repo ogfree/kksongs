@@ -1,0 +1,638 @@
++++ 
+title = "Balabhid Upala Kanti Drohini"
+date = "2024-08-07"
++++
+
+Krsna
+ 
+Kirtana
+ 
+Songs
+
+est. 2001
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â  
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â  
+www.kksongs.org
+
+
+
+
+
+
+
+
+
+
+Home
+
+
+Ã 
+ 
+Song Lyrics
+ 
+Ã 
+ 
+B
+
+
+Song Name: 
+Balabhid
+ 
+Upala
+ 
+Kanti
+ 
+Drohini
+
+
+Official Name: Volume 1; Sri 
+Mukundastakam
+
+
+Author: 
+Rupa
+ 
+Goswami
+;
+ 
+Raghunatha
+ 
+Dasa
+ 
+Goswami
+
+
+Book Name: 
+Stavamala
+
+
+Language: 
+Sanskrit
+
+
+ 
+
+
+LYRICS:
+
+
+(1)
+
+
+balabhid-upala-kānti-drohiṇi
+ 
+śrīmad-ańge
+
+
+ghusṛṇa-rasa-vilāsaih
+̣ 
+suṣṭhu
+ 
+gāndharvikāyāh
+̣
+
+
+sva-madana-nṛpa-śobhām
+́ 
+vardhayan
+ 
+deha-rājye
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(2)
+
+
+udita-vidhu-parārdha-jyotir
+ 
+ullańghi-vaktro
+
+
+nava-taruṇima-rajyad-bālya-śeṣāti-ramyah
+̣
+
+
+pariṣadi
+ 
+lalitālīm
+́
+
+dolayan
+ 
+kuṇḍalābhyām
+́
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(3)
+
+
+kanaka-
+nivaha-śobhā-nindi
+ 
+pītam
+́ 
+nitambe
+
+
+tad-
+upari
+ 
+nava-raktam
+́ 
+vastram
+ 
+ittham
+́ 
+dadhānah
+̣
+
+
+priyam
+ 
+iva
+ 
+kila
+ 
+varṇam
+́
+
+rāga-yuktam
+́ 
+priyāyāh
+̣
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(4)
+
+
+surabhi-kusuma-vṛndair
+ 
+vāsitāmbhaḥ-samṛddhe
+
+
+priya-sarasi
+ 
+nidāghe
+ 
+sāyam
+ 
+ālī-parītā
+
+
+madana-janaka-śekaih
+̣ 
+khelayann
+ 
+eva
+
+
+rādhām
+́
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(5)
+
+
+parimalam
+ 
+iha
+ 
+labdhvā
+ hanta 
+gāndharvikāyāh
+̣
+
+
+pulakita-tanur
+ 
+uccair
+ 
+unmadas
+ tat-
+kṣaṇena
+
+
+nikhila-vipina-deśān
+ 
+vāsitān
+ 
+eva
+ 
+jighran
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(6)
+
+
+praṇihita-bhuja-daṇḍah
+̣ 
+skandha-deśe
+ 
+varāńgyāh
+̣
+
+
+smita-vikasita-gaṇḍe
+ 
+kīrtidā-kanyakāyāh
+̣
+
+
+msanasija-jani-saukhyam
+́ 
+cumbanenaiva
+ 
+tanvan
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(7)
+
+
+pramada-danuja-goṣṭhyāh
+̣ 
+ko
+ 'pi 
+samvarta-vahnir
+
+
+vraja-bhuvi
+ 
+kila
+ 
+pitror
+ 
+mūrtimān
+
+
+sneha-puÃ±jah
+̣
+
+
+prathama-rasa-mahendrah
+̣ 
+śyāmalo
+ 
+rādhikāyāh
+̣
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(8)
+
+
+sva-kadana-kathayāńgī-kṛtya
+ 
+mṛdvīm
+́ 
+viśākhām
+́
+
+
+kṛta-caṭu
+ 
+lalitām
+́ 
+tu
+
+
+prārthayan
+ 
+prauḍha-śīlām
+
+
+praṇaya-vidhura-rādhā-māna-vidhvaḿsanāya
+
+
+praṇayatu
+
+mama 
+netrābhīṣṭa-siddhim
+́ 
+mukundah
+̣
+
+
+ 
+
+
+(9)
+
+
+paripaṭhati
+ 
+mukundasyāṣṭakam
+́
+
+kākubhir
+ yaḥ
+
+
+sakala-viṣaya-sańgāt
+ 
+sanniyamyendriyāṇi
+
+
+vraja-nava-yuva-rājo
+ 
+dārśayan
+ 
+svam
+́
+
+sa-rādhe
+
+
+sva-jana-gaṇana-madhye
+ taḿ 
+priyāyās
+
+
+tanoti
+
+
+ 
+
+
+TRANSLATION
+
+
+1)
+"May 
+Mukunda
+, whose beautiful bodily complexion,
+anointed with vermilion, defeats the 
+lustre
+ of
+sapphires, splendidly increasing the beauty of king Cupid in the kingdom of 
+Gandharvika's
+ (
+Radhika's
+) body,
+fulfill the desires of my eyes!"
+
+
+ 
+
+
+2)
+"May 
+Mukunda
+, the splendor of whose face
+surpasses that of billions of rising moons, who is very lovely when He reaches childhood's
+end and enters into fresh adolescence, and who makes the hearts of 
+Radhika
+ and all Her 
+girfriends
+
+oscillate along with the dangling of His earrings, fulfill the desires of my
+eyes!"
+
+
+ 
+
+
+3)
+"May 
+Mukunda
+, who wears a yellow dhoti, that
+shimmers even brighter than an heap of gold, on His buttocks, and above that a
+red sash which appears to be colored by the passionate love of His dearly
+beloved Sri 
+Radhika
+, fulfill the desires of my
+eyes!"
+
+
+ 
+
+
+4)
+"May 
+Mukunda
+, who plays with 
+Radha
+,
+who is surrounded by Her girlfriends, in Her beloved lake (
+Radhakunda
+),
+that has become more fragrant due to the nicely smelling flowers, in
+summer-evenings, by splashing Her in an erotically agitating way, fulfill the
+desires of my eyes!Â”
+
+
+ 
+
+
+5)
+"O! May 
+Mukunda
+, who immediately gets goose
+bumps of ecstasy all over His body as soon as He catches 
+Gandharvika's
+
+(
+Radhika's
+) fragrance, and who then frantically
+smells the whole forest, that is delighted by this fragrance, fulfill the
+desires of my eyes!"
+
+
+ 
+
+
+6)
+"May 
+Mukunda
+, who places His staff-like arm on
+the shoulder of 
+Kirtida's
+ beautiful daughter, and who
+experiences great erotic happiness when He kisses Her cheeks, that are
+blossoming with a smile, fulfill the desires of my eyes!"
+
+
+ 
+
+
+7)
+"May 
+Mukunda
+, who is the fire of destruction for
+all the wild and proud demons, who is the embodiment of great affection for His
+parents in 
+Vraja
+, and who is the presiding deity of
+the first (erotic) 
+rasa
+ for Sri 
+Radhika
+,
+fulfill the desires of my eyes!"
+
+
+ 
+
+
+8)
+"May 
+Mukunda
+, who confides in soft-hearted 
+Visakha
+, telling her about His suffering but who prays to
+arrogant 
+Lalita
+ with plaintive words in order to
+destroy the proud huff of love-anguished Sri 
+Radha
+,
+fulfill the desires of my eyes."
+
+
+ 
+
+
+9)
+"Sri 
+Mukunda
+, the young prince of 
+Vraja
+, will reveal Himself with His beloved 
+Radha
+ to anyone who anxiously recites these eight prayers
+to 
+Mukunda
+ and withdraws his senses from the
+sense-objects, counting him or her among the maidservants of His 
+Priyaji
+ 
+Radhika
+!" Thus ends 
+Srila
+ 
+Raghunatha
+ 
+dasa
+ 
+Gosvami's
+ and 
+Rupa
+ 
+Gosvami's
+ 
+Mukundastakam
+
+
+ 
+
+
+Remarks/ Extra Information
+: 
+
+
+Both
+
+Rupa
+ 
+Goswami
+ and 
+Raghunatha
+ 
+Goswami
+ had written
+this together. 
+Rupa
+ 
+Goswami
+
+included this in his text Â“
+Stavamala
+.Â”
+
+
+ 
+
+
+UPDATED:
+ June 24, 2009
