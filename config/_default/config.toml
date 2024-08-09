@@ -29,9 +29,9 @@ enableEmoji = true
   series = "series"
 
 [sitemap]
-  changefreq = 'daily'
+  #changefreq = 'daily'
   filename = 'sitemap.xml'
-  priority = 0.5
+  #priority = 0.5
 
 [outputs]
   home = ["HTML", "RSS", "JSON"]
